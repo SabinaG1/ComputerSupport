@@ -1,1 +1,1 @@
-# ComputerSupport
+# ComputerSupport Sabína Gáliková 
